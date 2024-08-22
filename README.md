@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MiniROBO-mai
-- 👀 I’m interested in ... lofi & chillmusic
+- 👀 I’m interested in ... lofi & chill music
 - 🌱 I’m currently learning ... how to do certain things here..
 - 💞️ I’m looking to collaborate on ... Wrapper: Offline
 - 📫 How to reach me ... just use my email! kyliegrantwilsonluck@gmail.com
